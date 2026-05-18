@@ -1,4 +1,4 @@
-# 
+# Inteligente Adobe Premiere Pro para PC addons é o melhor Adobe Premiere Pro para PC addons com modelos de projeto e gráficos em movimento. Seguro, confiável e otimizado para
 
 
 
